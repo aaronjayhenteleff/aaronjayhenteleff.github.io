@@ -1,2 +1,2 @@
-# aaronjayhenteleff.github.io
-Aaron Jay Henteleff
+# Aaron Jay Henteleff
+aaron@henteleff.com
